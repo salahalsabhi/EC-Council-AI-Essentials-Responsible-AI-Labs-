@@ -64,4 +64,10 @@ As AI models and automated agents integrate deeply into enterprise workflows, un
 
 #CyberSecurity #ArtificialIntelligence #AIEthics #DeepfakeDetection #DataPrivacy #ThreatIntelligence #Infosec #ECCouncil
 
-```
+---
+
+LinkedIn : [https://www.linkedin.com/feed/update/urn:li:activity:7515880855249154048/]
+
+X : [https://x.com/charisma1385/status/2110112633550721202]
+
+---
